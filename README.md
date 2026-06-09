@@ -1,3 +1,3 @@
-# https://blvbatman.github.io/mang3chu.m3u
-# https://blvbatman.github.io/mang4chu.m3u
-# https://blvbatman.github.io/mang7chu.m3u
+# http://tiny.cc/udpfpt
+# http://tiny.cc/udpvnpt
+# http://tiny.cc/udpviettel
